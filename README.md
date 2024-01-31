@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hestaine.
 - 👀 I’m interested in a lotta things.
 - 🌱 I’m currently learning how to code.
-- 💞️ I’m looking for an internship that pays.
+- 💞️ I’m looking for an internship  don't mind if it's little or no payments.
 - 📫 How to reach me: whatsapp: +2348115952280.
 - I'm also looking for a japanese friends hit me up.
 
